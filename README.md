@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Nitanshi gupta
 - 🌱 I’m currently learning android,java
-- 💞️ I’m looking to collaborate with the team to work on more new projects
+- 💞️ I’m Eager to collaborate with the team to work on more new projects
 - 📫 How to reach me nitanshi73@gmail.com
 
 <!---
