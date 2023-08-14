@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **team mates to work on projects**
 
-- 👨‍💻 All of my projects are available at [www.linkedin.com/in/nitanshi-gupta-902923261](www.linkedin.com/in/nitanshi-gupta-902923261)
+- 👨‍💻 All of my Certificates are available at [www.linkedin.com/in/nitanshi-gupta-902923261](www.linkedin.com/in/nitanshi-gupta-902923261)
 
 - 📫 How to reach me **nitanshi73@gmail.com**
 
