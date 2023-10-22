@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nitanshi73@gmail.com**
 
-- ⚡ Fun fact **I like to make someone happy**
+- ⚡ Fun fact **I would like to make someone happy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
